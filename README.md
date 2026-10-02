@@ -1,0 +1,1 @@
+# osaka-cn2-gia-vps
